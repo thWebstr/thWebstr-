@@ -110,9 +110,9 @@ I build websites that convert — grounded in design research, engineered with p
 
 I'm available for **web design and development projects** — especially redesigns for service-based businesses that care about aesthetics.
 
-Minimum engagement: **$600** · Remote only · International clients preferred
+Minimum engagement: **$700** · Remote only · International clients preferred
 
-[![Email](https://img.shields.io/badge/Get_in_touch-000000?style=for-the-badge&logo=gmail&logoColor=white)](mailto:your@email.com)
+[![Email](https://img.shields.io/badge/Get_in_touch-000000?style=for-the-badge&logo=gmail&logoColor=white)](mailto:thewebstr25@gmail.com)
 
 ---
 
